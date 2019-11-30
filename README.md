@@ -9,3 +9,9 @@ at NJIT studying Business and Information Systems. I am interested in Real Estat
 work experience in the staffing industry but I am currently improving my tech experience but I do my best to learn as much as possible and to one day get
 a better job at a reputable company to expand and use my knowledge in computers. I hope to one day work for myself and operate my own business
 and continue my career from there.
+
+(Three Goals)
+
+Complete a Marathon
+Create a Philanthropy
+Travel the World
